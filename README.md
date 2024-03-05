@@ -1,0 +1,5 @@
+- 👋 C'est moi wsh @C69Ranny
+- 👀 Sah j'aime dev en Lua (logik pour fiveM)
+- 🌱 La j'apprend comment fonctionne un dédier et les IPv4 / IPv6
+- 💞️ Collab ? add moi discord : c.zerow
+- 📫 web@ranny.fr
